@@ -1,2 +1,3 @@
 # soares123
-[Pastel Creative Brainstorm Mind Map_20240905_232752_0000.pdf](https://github.com/user-attachments/files/16934745/Pastel.Creative.Brainstorm.Mind.Map_20240905_232752_0000.pdf)
+
+[Uploading Preto e Branco Currículo Simples da Área de Logística_20240909_150046_0000.pdf…]()
